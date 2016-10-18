@@ -5,6 +5,7 @@
 	* Kød
 	* TomatSovs
 	* Løg
-* Bland lortet sammen og håb på det bedste
-* 
+* Bland lortet sammen, lad det simre og håb på det bedste
+* Læg i lag med ostesovs
+* Bag i ovene i 35 min. 
 
